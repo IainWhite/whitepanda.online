@@ -1,2 +1,2 @@
-# whitepanda.online
+# White Panda Online
 White Panda Online
